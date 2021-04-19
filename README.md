@@ -1,6 +1,6 @@
 ### Hi I'm Beats0 👋
 
-<img src="https://steamuserimages-a.akamaihd.net/ugc/1749061746122410107/4BA1152B5AF9435756EC14B639036329AE8DC44A/" height="150" align="right" alt="生徒会の一存" title="生徒会の一存" />
+<img src="https://steamuserimages-a.akamaihd.net/ugc/1749061746122410107/4BA1152B5AF9435756EC14B639036329AE8DC44A/" height="120" align="right" alt="生徒会の一存" title="生徒会の一存" />
 
 
 _(:зゝ∠)_
