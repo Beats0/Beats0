@@ -7,4 +7,4 @@ _(:зゝ∠)_
 
 - Read more about my [Blog](https://Beats0.github.io)
 - Talk with me by [Email](mailto:Beats01998@gmail.com) or [Telegram](https://t.me/Beats0ling)
-- Follow me on [Twitter](https://twitter.com/Beats0ling) or [bilibili](https://space.bilibili.com/598848)
+- Follow me on [Twitter](https://twitter.com/Beats0ling)
